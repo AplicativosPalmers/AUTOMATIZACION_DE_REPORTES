@@ -81,4 +81,4 @@ text
 
 ---
 
-⭐ **Desarrollado por el equipo de Sistemas de Palmeras del Llano**
+⭐ **Desarrollado por el equipo de Sistemas de PALMERAS DEL LLANO SAS BIC**
